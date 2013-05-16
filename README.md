@@ -1,4 +1,2 @@
-For Outplacement Firm
-=====================
-
-Fuck you!
+No Thanks
+=========
